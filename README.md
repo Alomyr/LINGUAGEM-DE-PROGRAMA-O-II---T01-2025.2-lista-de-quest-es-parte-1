@@ -1,0 +1,1 @@
+# LINGUAGEM-DE-PROGRAMA-O-II---T01-2025.2-lista-de-quest-es-parte-1
